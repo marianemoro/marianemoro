@@ -2,7 +2,8 @@
 
 ## UX/UI Designer
 
-I started my carreer as a graphic designer and the most part of my projects was editorial design, but as long as I was evolving as designer, I realized I was more interessed in digital projects, so I started to learn about technology, user interactions and digital solutions. Today I work in a big retail company, where I could create solutions to make the employees easier and better. Now I’m responsible for the e-commerce projct, and I always try to create solutions to do something good to ours customers and to our team.
+I started my carreer as a graphic designer and the most part of my projects was editorial design, but as long as I was evolving as designer, I realized I was more interessed in digital projects, so I started to learn about technology, user interactions and digital solutions. 
+Today I work in a big retail company, where I could create solutions to make the employees easier and better. Now I’m responsible for the e-commerce projct, and I always try to create solutions to do something good to ours customers and to our team.
 
 
 ### 2016 - Current Job: Leroy Merlin - São Paulo - SP
